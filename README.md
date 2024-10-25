@@ -13,6 +13,6 @@ ps: im friendly, PROMISE!! you can int with me ⊂⁠(⁠(⁠・⁠▽⁠・⁠)
 
 
           →KIN LIST←
-Deadpool, Nishinoya Yuu, Kotaro Bokuto, Kaeya Alberich (😢), Rui Mizuki, Sho Haizono, Kaito Fuji
+Deadpool, Nishinoya Yuu, Kuroo Tetsuro, Kaeya Alberich (😢), Rui Mizuki, Sho Haizono, Kaito Fuji
 
 (I'll probably add more later on 🤧)
