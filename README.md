@@ -1,7 +1,11 @@
-🌸 Koushi/Rei
+🌸 you can call me Koushi or Rei
 
 • intp
 
-→ any prns (preferably he/him)
+BYI!
+→I am very enthusiastic and loud when meeting new people + IM PAINFULLY SARCASTIC (and maybe cringe too 🤔)
+
+!! beware of deeznuts jokes and 2020 ahh humor 😢
+
 
 ps: im friendly, PROMISE!! you can int with me ⊂⁠(⁠(⁠・⁠▽⁠・⁠)⁠)⁠⊃
