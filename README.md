@@ -8,5 +8,5 @@ BYI!
 !! beware of deeznuts jokes and shitty humor 😢
 
 
-ps: im friendly, PROMISE!! you can int with me ⊂⁠(⁠(⁠・⁠▽⁠・⁠)⁠)⁠⊃
+ps: im friendly, PROMISE!! you can int or cuddle with me ⊂⁠(⁠(⁠・⁠▽⁠・⁠)⁠)⁠⊃
 
