@@ -3,7 +3,7 @@
 • intp + pansexual n genderfluid 
 
 BYI!
-→I am pretty enthusiastic and loud when meeting new people + IM PAINFULLY SARCASTIC (and may be cringe too 🤔)
+→I am pretty enthusiastic and loud when around friends (mostly) + IM PAINFULLY SARCASTIC (and may be cringe too 🤔). To new people, dw im pretty chill I promise 😭 
 
 !! beware of deeznuts jokes and shitty humor 😢
 
